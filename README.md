@@ -1,1 +1,1 @@
-# societyforpowercontrol
+# Society For Power Control
